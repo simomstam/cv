@@ -1,2 +1,2 @@
-# mihail.github.io
-Kiselyov Mihail | CV
+# simomstam.github.io
+Kiselyov Mihail | Ukraine, Dnipro | Video Editor | CV
